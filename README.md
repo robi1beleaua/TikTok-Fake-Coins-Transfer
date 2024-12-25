@@ -1,7 +1,7 @@
 # TikTok-Fake-Coins-Transfer
 # Made for entertainment only
 
-> 💲 **PRICE : 5.50$ | Contact Me: https://t.me/bankzoff**
+> 💲 **PRICE : 5.50$ | Contact Me: https://t.me/stilunou**
 
 [ SEND " TikTok Page " ]
 Payments via secure gateway
